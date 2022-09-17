@@ -36,10 +36,10 @@
 
 
 # Contact dev
-* Telegram: ```@ngdangtr```
+* zalo: ```0769417241```
 
 # Donation
-* Momo: ```0965849504```
+* Momo: ```0702526246```
 
 
 
